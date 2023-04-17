@@ -5,4 +5,4 @@ Ola! Eu sou a Thalissa, prazer :)
 extremamente satisfatório,a ironia do destino é que dois anos atrás eu odiava 
 qualquer coisa relacionada a tecnologia e hoje em dia é um dos meus tópicos
 favoritos :)
-Meus pronomes são: Ela/Dela 
+- Meus pronomes são: Ela/Dela 
