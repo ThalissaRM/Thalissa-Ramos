@@ -1,4 +1,4 @@
-Hey there! I'm Thalissa, nice to meet ya :)
+Hey there! I'm Thalissa a brazilian student, nice to meet ya :)
 
  ⚡ I study systems and program development for around a year now.
  ⚡ And i enjoy both the back-end and the front-end and I think the whole process of developing
